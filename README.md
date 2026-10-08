@@ -1,0 +1,1 @@
+# SC5002-Artificial-Intelligence-Fundamentals-and-Applications-Assignment-1
